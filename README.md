@@ -1,7 +1,7 @@
 - 𓆤 Hi, I’m @waspJelly
 - ☠  I just wanted you to know...
 - 🐝 That bees ain't shit,
-- 🍯  But sweet honey and dicks.
+- 🍯  But tiny little flying dicks.
 
 
 <!---
